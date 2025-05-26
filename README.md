@@ -1,4 +1,4 @@
 - 👋 Hi, I’m ItzLynnn
 - 👀 I’m interested in Game, Anime & Coding
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: 17 y.o
+- ⚡ Fun fact: I'm a human
