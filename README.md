@@ -1,4 +1,4 @@
 - 👋 Hi, I’m ItzLynnn
 - 👀 I’m interested in Game, Anime & Coding
-- 😄 Pronouns: they/them
-- ⚡ Fun fact: I'm a human
+- 😄 Pronouns: he/him
+- 🗣️ Just call me ItzLynnn
